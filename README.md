@@ -1,1 +1,0 @@
-# CursuriPractica2026
